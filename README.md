@@ -8,5 +8,6 @@
 ![image](https://github.com/Mahi4052/Dog-Repellent-Device/assets/95848665/039cca03-8946-420d-b6ab-97e86105edc3)
 
 
-![image](https://github.com/Mahi4052/Dog-Repellent-Device/assets/95848665/f6240042-32cd-4dcb-a83a-777bfc023c42)
+![image](https://github.com/Mahi4052/Dog-Repellent-Device/assets/95848665/f6240042-32cd-4dcb-a83a-777bfc023c42)    ![image](https://github.com/Mahi4052/Dog-Repellent-Device/assets/95848665/496db085-b1d1-4623-a258-ed5d488b3faa)
+    
 
